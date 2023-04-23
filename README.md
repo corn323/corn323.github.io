@@ -1,3 +1,4 @@
-# [點擊前往](https://corn323.com) 
-新網址:https://corn323.com
+# [點擊前往](https://web.corn323.com) 
+網址:https://web.corn323.com
+不定時更新
 
